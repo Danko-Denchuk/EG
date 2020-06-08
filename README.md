@@ -1,4 +1,5 @@
 # EG
+**NUEVA ACTUALIZACIÓN** Ya casi hemos terminado, solo queda pulir algunos detalles, podéis ver lo que llevamos en el archivo, actualización 08/06/2020
 
 **Aquí podéis descargar el archivo principal que iré actualizando con lo que habéis subido. Dejo un enlace porque pesa demasiado como para subirlo por aquí. No está ni de lejos terminado todavía:**
 
