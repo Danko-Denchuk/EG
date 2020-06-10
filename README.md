@@ -1,7 +1,7 @@
 # EG
-**NUEVA ACTUALIZACIÓN** Ya casi hemos terminado, solo queda pulir algunos detalles, podéis ver lo que llevamos en el archivo, actualización 08/06/2020
+**NUEVA ACTUALIZACIÓN** Ya casi hemos terminado, solo queda pulir algunos detalles, podéis ver lo que llevamos en el archivo, actualización 10/06/2020
 
-https://alumnosurjces-my.sharepoint.com/:u:/g/personal/d_denchuk_2019_alumnos_urjc_es/EeAWYS5efbtHrCmviWggtDIB7qPNMDVv9jiUzfP19lMc4A?e=erJAAu
+https://alumnosurjces-my.sharepoint.com/:u:/g/personal/d_denchuk_2019_alumnos_urjc_es/EeAWYS5efbtHrCmviWggtDIB7qPNMDVv9jiUzfP19lMc4A?e=pegaYU
 
 La distribución del trabajo se encuentra en el PDF llamado Trabajo EG. Ahí puedes ver lo que te ha tocado hacer. Este archivo se intentará 
 mantener actualizado en medida de mis posibilidades. ~~En cualquier caso podéis contactarme por Whatsapp.~~ No atiendo Whatsapp, solo llamadas o e-mail. **d.denchuk.2019@alumnos.urjc.es**
